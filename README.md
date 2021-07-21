@@ -7,10 +7,10 @@
 
 ## I'm a Husband, Father of 3 girls, Developer and Ex Military!!
 
-- 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to work with nice people 
-- 🥅 2021 Goals: Stop trying to have a boy 🤣
-- ⚡ Fun fact: I love listening to music. 🎶 
+- 🌱  I’m currently learning everything 🤣
+- 👯  I’m looking to work with nice people 
+- 🥅  2021 Goals: Stop trying to have a boy 🤣
+- ⚡  Fun fact: I love listening to music. 🎶 
 
 ### Spotify Playing 🎧
 
