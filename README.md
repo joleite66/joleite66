@@ -1,4 +1,4 @@
-### Hi there, I'm João - aka [Full Stack Developer][linkedin] 👋
+### Hi there, I'm João Leite - aka [Full Stack Developer][linkedin] 👋
 
 <br />
 
