@@ -1,7 +1,5 @@
 ### Hi there, I'm João Leite - aka [Full Stack Developer][linkedin] 👋
 
-<br />
-
 ## I'm a Husband, Father of 3 girls, Developer and Ex Military!!
 
 - 🌱    I’m currently learning everything 🤣
