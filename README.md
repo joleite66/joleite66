@@ -1,4 +1,4 @@
-### Hi there, I'm João Leite - aka [Full Stack Developer][linkedin] 👋
+### Hi there, I'm João Leite - aka [Junior Full Stack Developer][linkedin] 👋
 
 ## I'm a Husband, Father of 3 girls, Developer and Ex Military!!
 
